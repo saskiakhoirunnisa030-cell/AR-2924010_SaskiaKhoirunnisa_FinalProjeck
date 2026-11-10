@@ -1,0 +1,6 @@
+Projek Tugas Kelompok 6
+
+Harywan Muharran		2924005
+Elvi Yanti Tanjung		2924006
+Saskia Khoirunnisa Nasution	2924010
+Muammar Husein Hasibuan		2924030
